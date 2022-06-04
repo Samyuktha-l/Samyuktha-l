@@ -1,6 +1,19 @@
-# Who am I?
+# Professional Summary
 
-My name is Samyuktha. I am a pencil, and I was born in Geneva. A few days after my birth, my family moved to Bangalore, where I went to school and college. I graduated top of my class from the Faber-Castell Architecture University, and interned as draughtsperson at Kohinoor Hardtmuth.
+Equipped with the right blend of content writing, content marketing, and communications skills and 15+ years of hands-on experience in:
+- UX writing, 
+- technical writing, 
+- scientific editing, 
+- technical writing, 
+- marketing content development, 
+- marketing communications, 
+- brand development, and 
+- editing for the IT/Product industry, 
+
+I am a Molecular and Cellular Biology Post Graduate, a PG Diploma holder in Business Administration with a specialization in Media and Advertising, and a UX, Technical, and Marketing Content Writer with a passion for User Experience, marketing, branding, and digital communications. 
+
+Possess exceptional time management and interpersonal skills combined with the strong ability to draw an audience with engaging content. My passion is to create better stories for the audience - to drive engagement, build brands, ensure the documentation for all in-company solutions is immaculate, and connect people by weaving the elements of 'SMAC for Digital Transformation' together. I have worked and succeeded in a wide range of environments- from start-ups to world-leading B2B brands – especially in SAP environments.
+
 
 # What do I do?
 
