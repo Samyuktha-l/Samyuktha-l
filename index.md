@@ -1,4 +1,4 @@
-# Professional Summary
+# Samyuktha: Professional Summary
 
 Equipped with the right blend of content writing, content marketing, and communications skills and 15+ years of hands-on experience in:
 - UX writing, 
